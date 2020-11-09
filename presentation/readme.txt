@@ -1,1 +1,0 @@
-Sample presentations are provided here
